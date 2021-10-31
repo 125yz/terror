@@ -1,2 +1,2 @@
 # m4
-Project soon : Scared &amp; Galaxia
+Project soon : Bios &amp; Galaxia
